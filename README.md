@@ -4,7 +4,7 @@
 
 Here you'll find templates and guides you can use for conducting user research at the council. 
 
-We've created this space to make documents available to council staff as well as those who may be conducting research in other councils or organisations. 
+We've created this space to make documents available to council employees as well as those who may be conducting research in other councils or organisations. 
 
 
 ## Make theses templates your own ##
